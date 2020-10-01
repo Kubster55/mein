@@ -1,3 +1,2 @@
 # moje
-eluwa
-ni
+lecimy durr
