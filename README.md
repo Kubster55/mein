@@ -1,3 +1,2 @@
 # moje
-lecimy durr
 naura
